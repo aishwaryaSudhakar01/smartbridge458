@@ -1,4 +1,4 @@
-Please find the links to the assignments, the final website and a demo of the project 
+Please find the links to the assignments, the final website and demo of the project 
 
 ASSIGNMENTS: https://drive.google.com/drive/u/1/folders/1UBUJgrUZNMeM_hmnm-_rDh72_Jm0Z87E
 
